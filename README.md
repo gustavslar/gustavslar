@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @gustavslar
+- 👋 Hi, I’m Gustavo - @gustavslar
 - 🌱 I’m currently learning web design
 - 📫 laredogustavo66@gmail.com
