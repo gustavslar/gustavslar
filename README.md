@@ -1,3 +1,1 @@
 - 👋 Hi, I’m Gustavo - @gustavslar
-- 🌱 I’m currently learning programming.
-- 📫 laredogustavo66@gmail.com
